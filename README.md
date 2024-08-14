@@ -1,2 +1,1 @@
-Вам зараз легко дивитись на виконані завдання , мені було не дуже легко їх виконувати ⏳
-<br>Тут мої муки та страждання протягом 1 семестру 4 курсу ...
+"You see the results effortlessly, but behind them are the struggles I faced." ⏳
